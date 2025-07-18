@@ -1,1 +1,0 @@
-# people-of-kanten
